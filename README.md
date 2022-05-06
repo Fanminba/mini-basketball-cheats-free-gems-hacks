@@ -1,2 +1,5 @@
-# mini-basketball-cheats-free-gems-hacks
-Mini Basketball Cheats free gems and coins Hacks generator with mod menu
+# Mini Basketball Cheats free gems and coins Hacks generator with mod menu
+
+Mini Basketball Cheats free gems and coins Hacks generator with mod menu - The effectiveness and sensitivity of steals and blocking dynamics in mini basketball are reminiscent of NBA Live games before 2005. At that time, you can basically send stealing and blocking commands through spam without worrying about the consequences. While chasing the ball controller, click the defense button repeatedly, and the player you choose will continue to enter. When you do this, you rarely commit a foul. If you commit a foul, you usually don't take a free throw, but only one free throw. How do you chain steal? The speed and interval of attempts are as unreal as an arcade, so you can send spam at any time. If a defender stands on the direct pass channel, the steal will also occur automatically. As for blocking, you need to promise to keep the defensive button for at least a whole second during the game. Otherwise, it will be just a soft resistance or sub heartbeat and will not do anything, because mini basketball is a simplified game.
+
+<a href="https://growhunt.top/mini-basketball/">go here</a>
